@@ -1,1 +1,1 @@
-# technologie 1..2.3
+# technologie 1..2.

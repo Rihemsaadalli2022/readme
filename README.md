@@ -1,3 +1,3 @@
 # technologie 1..2.
-&é"'(-èujn 
+&é"'(-èujn gbvfffffffffffffffffffffffffffff
 jhjkl
